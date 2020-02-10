@@ -1,1 +1,1 @@
-#  https://higherqualityoflife.github.io/coupon/
+#  https://higherqualityoflife.github.io/1bottlecoupon/
